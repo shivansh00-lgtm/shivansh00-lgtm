@@ -67,7 +67,7 @@ I'm working toward becoming a professional **Data Analyst** and building project
 
 ##  Connect With Me
 
-*  [LinkedIn](https://www.linkedin.com/in/shivansh-jaiswal-924b3aa8/)
+*  [LinkedIn](www.linkedin.com/in/shivansh-jaiswal-924b3a3a8)
 
 ---
 
